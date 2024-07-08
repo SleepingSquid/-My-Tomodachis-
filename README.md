@@ -1,4 +1,4 @@
-# -My-Tomodachis-
+# Checkout My Tomodachis!!
 Check out their profile! (≡^∇^≡)
 -  Rae!  -(´･ω∩`*) ✦╌╌┈┈╌╌
 https://github.com/L1TER4LEGEND
