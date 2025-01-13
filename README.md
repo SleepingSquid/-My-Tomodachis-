@@ -1,4 +1,4 @@
-# Checkout My Frienss!!
+# Checkout My Friends!!
 Check out their profile! (≡^∇^≡)
 
 -  Rae!  -(´･ω∩`*) ✦╌╌┈┈╌╌
