@@ -1,9 +1,12 @@
-# Checkout My Tomodachis!!
+# Checkout My Frienss!!
 Check out their profile! (≡^∇^≡)
 
 -  Rae!  -(´･ω∩`*) ✦╌╌┈┈╌╌
-https://github.com/L1TER4LEGEND
+https://github.com/mygod-myuniverse
 
 
--  Fiona  -(´･ω∩`*) ✦╌╌┈┈╌╌
+-  Fiona!  -(´･ω∩`*) ✦╌╌┈┈╌╌
 https://github.com/your-reader
+
+- Mio!  -(´･ω∩`*) ✦╌╌┈┈╌╌
+https://github.com/miohann
